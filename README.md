@@ -10,7 +10,8 @@
 
 
 ### Contato:
-
+https://www.linkedin.com/in/lucaslouzeiro/
+https://www.instagram.com/lucas15limaa/
 
 
 
